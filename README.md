@@ -1,0 +1,1 @@
+# gestorfiannceiro-privacy
